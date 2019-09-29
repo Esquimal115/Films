@@ -63,6 +63,8 @@ Cuando harry encontró a sally
 Cowboys de Ciudad
 Hook: El capitan garfio
 El club de los poetas muertos
-Traspotting
+Trainspotting
 Mouline Rouge
 Gattaca
+August Rush
+Inception (Origen)
