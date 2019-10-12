@@ -79,3 +79,5 @@ Willow
 The Game
 Cuestión de tiempo 
 La Ola
+El protegido
+Jungla de Cristal
