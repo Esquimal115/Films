@@ -77,3 +77,5 @@ Scarface
 Esencia de mujer
 Willow
 The Game
+Cuestión de tiempo 
+La Ola
