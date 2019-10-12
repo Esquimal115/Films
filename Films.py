@@ -83,3 +83,4 @@ El protegido
 Jungla de Cristal
 El caso Slevin
 Las posibles vidas de Mr. Nobody
+Funny Games
