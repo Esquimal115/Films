@@ -38,6 +38,8 @@ El resplandor
 La naranja mecánica
 Contact
 Juegos de Guerra
+Cuestión de tiempo
+La Ola
 Proyecto X
 A quién ama Gilbert Grape?
 Beatlejuice
