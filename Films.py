@@ -39,7 +39,7 @@ La naranja mecánica
 Contact
 Juegos de Guerra
 Proyecto X
-A quien ama Gilbert Grape?
+A quién ama Gilbert Grape?
 Beatlejuice
 Eduardo manostijeras
 Forrest Gump
@@ -74,3 +74,4 @@ Hackers
 Scarface
 Esencia de mujer
 Willow
+The Game
