@@ -85,4 +85,3 @@ Funny Games
 Armageddon
 En el nombre del padre
 El libro de Eli
-Cuando Harry encontró a Sally
