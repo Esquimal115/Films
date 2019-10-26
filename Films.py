@@ -77,8 +77,6 @@ Scarface
 Esencia de mujer
 Willow
 The Game
-Cuestión de tiempo 
-La Ola
 El protegido
 Jungla de Cristal
 El caso Slevin
@@ -87,3 +85,4 @@ Funny Games
 Armageddon
 En el nombre del padre
 El libro de Eli
+Cuando Harry encontró a Sally
