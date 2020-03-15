@@ -25,7 +25,7 @@ Tootsie
 Rain Man
 La misión (Pendiente)
 El último Mohicano (pendiente)
-Mi pie izquierdo (Pendiente)
+Mi pie izquierdo
 Matrix
 El show de truman
 La máscara
