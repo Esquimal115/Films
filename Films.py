@@ -14,7 +14,7 @@ El abogado del Diablo
 American Psycho
 El maquinista
 Master and comander
-Salvar al soldado Bryan
+Salvar al soldado Ryan
 Men in black 1 / 2
 Dallas Bullers Club
 Ocenans Eleven
