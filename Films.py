@@ -9,6 +9,7 @@ Pulp Fiction
 Kill Bill
 Django Unchained
 El Vuelo
+Donnie Darko
 Lucas
 El abogado del Diablo
 American Psycho
@@ -50,7 +51,7 @@ Asesinato en 8mm
 Sirenas
 Jhonny Mnemonic
 Alien
-St. Vincent
+St Vincent
 Alguien voló sobre el nido del cuco
 Crash
 Super agente K9
@@ -80,11 +81,20 @@ The Game
 El protegido
 Jungla de Cristal
 El caso Slevin
-Las posibles vidas de Mr. Nobody
+Las posibles vidas de Mr Nobody
 Funny Games
 Armageddon
 En el nombre del padre
 El libro de Eli
 El inolvidable Simon Birch
 Identity
-
+Eternal Sunshine of the Spotless Mind
+Speed
+Money Ball
+Enemigo a las Puertas
+El silencio de los corderos
+Wasabi
+Zodiac
+En el nombre del padre
+Sin City
+Nightcrawler
