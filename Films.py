@@ -23,8 +23,8 @@ El cabo del miedo
 Blade Runner
 Tootsie
 Rain Man
-La misión (Pendiente)
-El último Mohicano (pendiente)
+La misión
+El último Mohicano
 Mi pie izquierdo
 Matrix
 El show de truman
