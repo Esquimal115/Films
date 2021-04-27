@@ -98,3 +98,5 @@ Zodiac
 En el nombre del padre
 Sin City
 Nightcrawler
+Begin Again
+The Sound of Metal
