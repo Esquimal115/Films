@@ -100,3 +100,4 @@ Sin City
 Nightcrawler
 Begin Again
 The Sound of Metal
+The ballad of buster scruggs
