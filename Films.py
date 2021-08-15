@@ -131,3 +131,8 @@ El 6º día
 Entre dos Helechos
 El Gran Gatsby
 The Boondock Saints - Los Elegidos
+El Protegido
+Split
+Glass
+The Village - El Bosque
+
