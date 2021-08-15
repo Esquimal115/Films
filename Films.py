@@ -94,6 +94,8 @@ Speed
 Money Ball
 Enemigo a las Puertas
 El silencio de los corderos
+Hannibal
+Dragón Rojo
 Wasabi
 Zodiac
 En el nombre del padre
@@ -122,3 +124,7 @@ Despertares
 The Mirror has 2 Faces - El Amor tiene 2 Caras
 8 Miles
 China Town
+El Rito
+Stigmata
+El Fin de los Días
+El 6º día
