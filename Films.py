@@ -66,6 +66,7 @@ Cuando harry encontró a sally
 Cowboys de Ciudad
 Hook: El capitan garfio
 El club de los poetas muertos
+500 días con Summer
 Trainspotting
 Mouline Rouge
 Gattaca
@@ -100,4 +101,24 @@ Sin City
 Nightcrawler
 Begin Again
 The Sound of Metal
+Mogul Mowgli
 The ballad of buster scruggs
+El faro
+Irreversible
+The Bad Batch
+Le Haine
+El príncipe de las Mareas
+Cuenta Conmigo ~ Stand by Me
+Lost in Transition
+El Escándalo de Larry FLint
+Tenacious D - The pick of Destiny
+The Holiday
+Love Actually
+Enemy - Denis Villanueve
+Fargo
+Mi girl - Mi chica
+El Rey Pescador
+Despertares
+The Mirror has 2 Faces - El Amor tiene 2 Caras
+8 Miles
+China Town
