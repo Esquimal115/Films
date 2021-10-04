@@ -85,7 +85,6 @@ El caso Slevin
 Las posibles vidas de Mr Nobody
 Funny Games
 Armageddon
-En el nombre del padre
 El libro de Eli
 El inolvidable Simon Birch
 Identity
