@@ -17,7 +17,7 @@ El maquinista
 Master and comander
 Salvar al soldado Ryan
 Men in black 1 / 2
-Dallas Bullers Club
+Dallas Buyers Club
 Ocenans Eleven
 Los intocables de Elliot Ness
 El cabo del miedo
