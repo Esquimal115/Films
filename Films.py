@@ -135,3 +135,5 @@ Split
 Glass
 The Village - El Bosque
 Diario de una Ninfómana
+Shutter Island
+Requiem for a Dream
