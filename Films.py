@@ -142,3 +142,5 @@ Requiem for a Dream
 Buscando a Eva
 Ex-Machina
 Cuestión de Tiempo
+Captain Fantastic
+Beautiful Boy: Siempre serás mi hijo
