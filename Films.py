@@ -151,3 +151,5 @@ Los Amigos de Peter
 El Principiante
 Vivarium
 La Cura del Bienestar
+Linea Mortal (1990)
+Atomic Blonde
